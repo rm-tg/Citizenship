@@ -1,3 +1,3 @@
 # Citizenship
-Here is your citizenship as requsted \n
+Here is your citizenship as requsted\
 Mitra, citizen NG106547845327
